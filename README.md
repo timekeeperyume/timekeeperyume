@@ -2,7 +2,11 @@
 𝙼𝙰𝚃𝚃 𝙾𝚁 𝙺𝙸𝙽𝚂
 
  
- https://pronouns.cc/@romeo
+𝑪+𝑯 𝑭𝑹𝑬𝑬𝑳𝒀
+
+<img width="25" height="35" alt="image" src= "https://64.media.tumblr.com/d0ab96b17188592f8bf0302879a259aa/efa1017aff24ee12-ac/s75x75_c1/b1b92cd8788755fa8b8968de9ea52b927c0bff32.gifv" />
+
+https://pronouns.cc/@romeo
   
 
 <div align="center"> 
