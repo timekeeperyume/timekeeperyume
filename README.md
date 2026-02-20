@@ -1,16 +1,23 @@
-## Hi there 👋
+<div align="center"> 
+𝙼𝙰𝚃𝚃 𝙾𝚁 𝙺𝙸𝙽𝚂
 
-<!--
-**timekeeperyume/timekeeperyume** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ 
+ https://pronouns.cc/@romeo
+  
 
-Here are some ideas to get you started:
+<div align="center"> 
+  
+<img width="500" height="500" alt="image" src="https://64.media.tumblr.com/be81a902103ab7be6bb4ed79b4fb055a/94b6e6f8e4242937-a8/s1280x1920/4f1df2f6b8b6d630e7f1d9ed308871bb7d235b1e.pnj" />
+<p align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="150" height="85" alt="image" src="https://64.media.tumblr.com/6d571d5f5f14233976a0f083eebdb49b/25b2bb827dcfdb37-82/s250x400/d92416b2df5d3e9cc22cfa2481bb649391201a99.pnj" />
+
+<img width="150" height="85" alt="image" src="https://github.com/user-attachments/assets/84facaff-61e8-4040-94ed-393f94dc9d3f" />
+<img width="150" height="85" alt="image" src="https://64.media.tumblr.com/30a001efbb8e073b9e393244d85b9a63/25b2bb827dcfdb37-bb/s250x400/866ec53954c23006a1caf7343da48ec35056de17.pnj" />
+
+
+<img width="1000" height="500" alt="image" src="https://64.media.tumblr.com/828df12a02420715abbeca476d7094f3/c2b9a0041152e810-71/s1280x1920/a7e56042969e56178ac0105d26718f18b6a7f797.gifv" />
+
+
+<div align="center"> 
+<img width="250" height="500" alt="image" src="https://media.tenor.com/PAldRyL-jCQAAAAj/timekeeper-timekeeper-cookie.gif" />
